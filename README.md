@@ -1,0 +1,1 @@
+It is the recipe of a type of Hybrid of macroni and maggi , in this we add all the spices of maggi the same way but we put in pasta . I was inspired to make this recipe because we weren't allowed to bring maggi to school but macroni was allowed so i just created Maggi macroni !!
